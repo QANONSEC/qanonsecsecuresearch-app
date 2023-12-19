@@ -1,1 +1,39 @@
 # qanonsecsecuresearch-app
+
+
+
+                                     .,,. .'.                                 
+                           .';.0.    ddl0 0oc.,k ;'                           
+                       ,; :k.0.do..  ll. .:lK  Ox,'dcc;                       
+                   .,.O,;dd0 ,;.,'.       ...  l  k: :0.oc.                   
+                  dl  .k, ..                      .;:;,Ok:K..                 
+                  ;xc::             ......            .. ..dxl;               
+             'loc        ... .xxc'.  .. .... .           .d:K.                
+            ,O; ol         ...XKKKKOl.      .',::::        .   .:o.           
+           lo;;oc            .KOKKKKKKoc..;xKXKKxk0o'         ko..O           
+         .docdd.           .,dOKKKKKKKKK00KKKK,OlloOx         .lco:'.         
+         ',;lc       .':ddx0KKKKKKKKKKKOdKKKKKo.xOc:'           :ol;l.        
+        x;x,o           cKKKKKKKKOKKKKKKKxkKKKXO;:;     ...       cd;         
+        .  l:        ';lOOOdKK0OOllkOKKKKKOd,...         ...     ,occc.       
+                     . :XK0oclOKOoKKOlxKKKKK,     ...    .                    
+                ..   . .KKK0..0KK..:d. .l0KKKc    ....     .                  
+               ...      ,KKKk..dXKc  .    :OXXd     ....                      
+               .....     ;KKKO..cKKx.       ,xX0,    .....                    
+                ...       '0KKK: KKKx     .   .oXd.                           
+                           .xKKKdkKKK.  ......  .l0o.        ..               
+                 .           lKKK0xO0     ....     ..;.                       
+         .'.       ...        .oKKKOl               .  ..                     
+        .d,,d         ..       lkkKKKk'            '. ..         kc:'         
+         ;c;;;    ..     .    cKK0:oKKKx,         .,.. ..       ,:coo         
+          ;,x:,    ...      ,kkOOd. .c0KXx:,loc...'' ..        llok,          
+           ,:ll;'    ..   . oXKKKKXk   okO0KKXk  ...  .       c::o.           
+             k..x'      .  ...;clc;.   .xkxo:.   ...       . dl;l             
+              ':.olc       ..    .                 .     .;.xd.:              
+               .:cl ,x;.         .......  ...         .. O  ':                
+                   :c..x;:                         ., 0ol:c;.                 
+                     .:dd   c.;. .          ...  kcdk.0:..                    
+                           x,oldx.  ck;;l.k 0l.  k,,.'.                       
+                             . o,   d; k::k.k,.  .                            
+                                       .                                      
+	
+	
